@@ -1,7 +1,7 @@
 - 👋 Hi, I’m girwaffles (that's totally my name)
 - 👀 I’m interested in: scratch, coding
 - 🌱 I’m currently: figuring out new things on scratch
-- 💞️ I’m looking to: collaborate on nothing
+- 💞️ I’m looking to collaborate on: nothing
 - 📫 How to reach me: don't
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: i got called kamala for a week at school because i don't like trump
